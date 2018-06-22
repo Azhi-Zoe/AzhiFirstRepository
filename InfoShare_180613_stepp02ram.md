@@ -88,7 +88,7 @@
 
 带着足够的理性去重新学习跑步吧！
 
-Reference：雷宗扬，[关于跑步的独立思考篇]，2015
+*[Reference：雷宗扬，[关于跑步的独立思考篇]，2015](https://mp.weixin.qq.com/s/jCE558RESs4zgaBq-LdnnQ)*
 
 ## 2. 跑步天生就会？
 
